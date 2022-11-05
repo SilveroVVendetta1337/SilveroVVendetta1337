@@ -2,7 +2,7 @@
 - @SilveroVVendetta1337 www.facebook.com/SilveroVVendetta (Agentmeowtwo@gmail.com)
 - 👀 I’m interested in ... COMPUTERS - PARTS - SYSTEM - POGRAMS
 - 🌱 I’m currently learning ... ABOUT BIOS, POWERSHELL AND SYSTEM
-- 💞️ I’m looking to collaborate on ... 1991-09-03
+- 💞️ I’m looking to collaborate on ... WINDOWS 11
 - 📫 How to reach me ... Agentmeowtwo@gmail.com or PHONENUMBER +460762651465
 - 
 - 
